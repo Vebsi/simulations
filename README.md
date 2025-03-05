@@ -20,7 +20,7 @@ But guess what? Every once in a while—just once in a while—someone tries to 
 Maybe they think they can get away with something. But guess what? We’ve got the best payment system in the world, folks. 
 It’s so good, it detects fraud like you wouldn’t believe. It’s a huge system, incredible.
 We’ve got custom functions that will catch these criminals and show you their behavior on a graph. 
-Believe me, it’s going to be tremendous!""
+Believe me, it’s going to be tremendous!"" - Someone with a very high position in the Office (probably), 2025
 
-- Someone with high position in the Office.
+
 
